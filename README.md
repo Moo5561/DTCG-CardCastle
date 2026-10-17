@@ -5,4 +5,4 @@ Basically just a dump of all the cards from I Turned Deltarune into a Trading Ca
 You should watch [the video from Sylkwyrm](https://www.youtube.com/watch?v=pvShRE6xYBg) for that.
 
 # Where are you getting these?
-From the [part 2](https://www.youtube.com/watch?v=KX5xUqRuDgM) for now, but maybe I'll try to get Sylkwyrm's attention to get all the card pngs directly.
+From the [Official Finished Cards](https://discord.com/channels/1482171932660072600/1557815708057075792) post in the Discord server.
